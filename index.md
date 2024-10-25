@@ -1,3 +1,7 @@
+layout: page
+title: "Orações"
+permalink: /prayers
+
 ## ☕️ Orações da Manhã
 
 ### Oração da Manhã
