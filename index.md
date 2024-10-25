@@ -120,3 +120,16 @@ Gratidão, gratidão, gratidão!
 
 Amém!”
 
+## 💰 Orações para Fartura e Prosperidade
+
+### Oração do Enriquecimento
+
+"Ó Deus, criador deste imenso universo, estou aqui para te invocar em favor da minha vida financeira. Que do alto da minha cabeça até a planta dos meus pés que eu seja envolvido por uma corrente de riqueza. Derrame sobre mim o dom da riqueza para que eu veja a tua glória e proclame a tua existência por onde eu passar. E que o anjo do dinheiro me visite e coloque em minhas mãos o espírito da sorte para que tudo que eu tocar venha prosperar e até o que era para dar errado passe a dar certo!Tu és o dono do ouro e da prata, então venha dos quatro cantos do mundo para me fazer um abençoado e de muitas posses. Manifeste em mim a tua grandeza e me faça ganhar, conquistar e enriquecer, porque tu és um Deus que soma, multiplica e acrescenta.
+
+Pelo poder do nome de Jesus Cristo, eu levanto a minha voz e profetizo que a partir deste instante o dinheiro virá em todas as direções e em avalanches de abundâncias. A partir de agora o meu destino está selado porque sou filho do Deus que criou todas as riquezas do mundo e vou me tornar muito rico.Me dê, ó Pai Celestial, o espírito da sorte para que eu venha acertar em cheio os seis números da megasena porque para o Senhor tudo é possível!Então, me torne o novo ganhador da megasena pelo teu poder pois sei que o Senhor pode interferir em minha vida. É o que eu te peço e determino que irá acontecer, em nome de Jesus Cristo. Amém."
+
+### Oração da fartura e abundância
+
+"Deus, que uma onda de energia positiva e luz transformadora chegue ao nosso lar, restaurando nossas finanças e nossos ânimos. Onde houver um alimento ou qualquer valor, que estes sejam multiplicados. Que tenhamos para suprir nossa família e ajudar quem precisa. Abençoa tudo que nos nutre, para que somente o bem maior preencha nosso interior. Que em nossa mesa habilite o espírito da união e harmonia, onde possamos compartilhar momentos de alegria e paz.
+
+Abra as portas do céu e faça chover fartura e abundância sem fim. Enche-nos com sua graça, Senhor. Seremos sempre gratos por sua generosidade.Gratidão por tanto amor!"
