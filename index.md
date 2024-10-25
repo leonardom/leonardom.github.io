@@ -1,4 +1,6 @@
-## Oração da Manhã
+## ☕️ Orações da Manhã
+
+### Oração da Manhã
 
 Senhor, no silêncio deste dia que amanhece, venho pedir-te paz, a sabedoria, a força.
 
@@ -10,7 +12,7 @@ Que eu seja tão bondoso e alegre que todos quantos se achegarem a mim sintam Tu
 
 Reveste-me de Tua beleza, Senhor, e que, no decurso deste dia, eu Te revele a todos!
 
-## Oração da manhã
+### Oração da manhã
 
 Obrigado, querido Deus, por este novo dia, pela graça de viver e saber que tua presença estará comigo. Obrigada por cada bênção recebida, pelo teu cuidado em minha vida e na vida da minha família.
 
@@ -20,7 +22,7 @@ Entrego este dia nas tuas mãos confiando no teu cuidado e livramento.
 
 Em nome de Jesus, amém!
 
-## Oração da Manhã
+### Oração da Manhã
 
 Acordo pleno de alegria e gratidão a Força Infinita pela vida, pelo amor, pela prosperidade e pela paz que se manifestam cada vez mais em minha existência.
 
@@ -32,7 +34,9 @@ Assumo a responsabilidade, o poder e a liberdade pelos meus pensamentos, palavra
 Posso e me permito ser saudável, próspero e feliz.
 Sendo esta a vontade de Deus, está feito.
 
-## Oração de Gratidão
+## 🙏🏻 Orações de Agradecimento 
+
+### Oração de Gratidão
 
 “Altíssimo Deus, sou grato pela vida que me destes, por cada amanhecer que renova as oportunidades de servir ao meu propósito, por cada anoitecer que permite dar descanso ao meu corpo.
 
@@ -50,14 +54,14 @@ Sou grato por todas as oportunidades, por todas as conquistas, por cada instante
 
 Sou grato, principalmente, por ter a oportunidade de amar, cada vez mais e com a intenção mais nobre que existe em meu coração. Gratidão!”
 
-## Como fazer um agradecimento a Deus?
+### Como fazer um agradecimento a Deus?
 “Senhor, meu Deus e meu Pai, eu Te agradeço por tudo o que tens feito em minha vida: pela alegria de viver, por minha família, pelos meus amigos, pelo ar que respiro, pelos dons que me deste, pelos relacionamentos que possibilitam que eu cresça a cada dia. Por tudo.
 
 Obrigado, Pai, pelas oportunidades que me tens dado de testemunhar o Amor com que amas a mim e a todas as pessoas.
 
 Obrigado, Pai, por Teu perdão e por dar-me uma vida plena e abundante. Senhor, a Ti, que és o Criador de tudo o que sou e do que possuo, dedico a minha vida, clamando para que eu veja e faça sempre a Tua vontade, e que minhas obras honrem e glorifiquem o Teu Nome. Amém!”
 
-## Oração da gratidão e prosperidade
+### Oração da gratidão e prosperidade
 “Sou grato por ser um Ímã que atrai riqueza.
 
 Todas as formas de prosperidade chegam a mim.
@@ -72,11 +76,11 @@ Sou grato porque o dinheiro chega a mim tanto de maneiras previstas como inesper
 
 Alegro-me com a segurança financeira que é uma constante em minha vida.”
 
-## Qual o Salmo que fala sobre gratidão?
+### Qual o Salmo que fala sobre gratidão?
 
 Salmo 118. Deem graças ao Senhor porque ele é bom; o seu amor dura para sempre. Na minha angústia clamei ao Senhor; e o Senhor me respondeu, dando-me ampla liberdade. O Senhor está comigo, não temerei.
 
-## Oração de gratidão ao universo
+### Oração de gratidão ao universo
 
 “Universo misterioso e perfeito, que tudo pode ver, pela bênção que possuo em minha vida, atraio a saúde do meu corpo, o verdadeiro amor, o emprego dos meus sonhos e tudo que eu almeje!
 
