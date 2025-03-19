@@ -142,3 +142,37 @@ Gratidão por tanto amor!"
 ##### 519 7148 - Tudo é possível
 ##### 519 7148 - Tudo é possível
 
+### Para começar o dia 🙏🏻🍀💰
+
+A ordem divina dirige minha vida hoje e todos os dias. Todas as coisas trabalharão hoje em conjunto para o meu bem. Esse é, para mim, um novo e maravilhoso dia. Nunca haverá outro igual a esse. Serei divinamente orientado o dia inteiro e, o que quer que eu faça, prosperarei. O amor divino cerca-me, abraça-me, envolve-me, e andarei em paz.
+
+Em todas as ocasiões em que minha atenção se desviar do que é bom e construtivo, irei trazé-la imediatamente de volta para a contemplação do que é belo e de boa fama. Eu sou um imã espiritual e mental, atraindo todas as coisas que me abençoam e me fazem prosperar. Vou ser hoje um sucesso maravilhoso em tudo que fizer. Vou, definitivamente, ser feliz durante todo o dia.
+
+Amém
+
+---
+
+I am a money magnet
+Abundance flows to me
+I am open and ready to receive lottery fortunes
+I allow me winning a big lotto jackpot
+
+**Leonardo, you've won a £7M Lotto jackpot**
+
+Eu permito que o dinheiro entre constantemente em minha vida.
+Eu permito que a riqueza entre constantemente em minha vida.
+Eu permito que a prosperidade financeira entre constamente em minha vida.
+
+Salmo 112 2-3
+*"A sua semente será poderosa na terra; A sua geração será abençoada. 
+Prosperidade e Riquezas haverá na sua casa, e a sua justiça 
+permanecerá para sempre."*
+
+### Grabovoi
+
+|Grabovoi| Meaning                 |
+|--------|-------------------------|
+|318 798 | Financial Abundance     |
+|519 7148| Everything is possible  |
+|138     | Professional development|
+
