@@ -153,14 +153,21 @@ Amém
 ---
 
 I am a money magnet
+
 Abundance flows to me
+
+I am open and ready to receive financial prosperity in my life
+
 I am open and ready to receive lottery fortunes
+
 I allow me winning a big lotto jackpot
 
 **Leonardo, you've won a £7M Lotto jackpot**
 
 Eu permito que o dinheiro entre constantemente em minha vida.
+
 Eu permito que a riqueza entre constantemente em minha vida.
+
 Eu permito que a prosperidade financeira entre constamente em minha vida.
 
 Salmo 112 2-3
@@ -175,4 +182,3 @@ permanecerá para sempre."*
 |318 798 | Financial Abundance     |
 |519 7148| Everything is possible  |
 |138     | Professional development|
-
