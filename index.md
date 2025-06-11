@@ -160,9 +160,9 @@ I am open and ready to receive financial prosperity in my life
 
 I am open and ready to receive lottery fortunes
 
-I allow me winning a big lotto jackpot
+I allow myself to win a £7 Million Lotto jackpot
 
-**Leonardo, you've won a £7M Lotto jackpot**
+![£7 Million Lotto Prize](/assets/images/GBP_7M_Lotto_Prize.png)
 
 Eu permito que o dinheiro entre constantemente em minha vida.
 
