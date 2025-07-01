@@ -175,6 +175,12 @@ Salmo 112 2-3
 Prosperidade e Riquezas haverá na sua casa, e a sua justiça 
 permanecerá para sempre."*
 
+### Decreto
+Uma enorme quantidade de dinheiro chega a mim
+de fontes abundantemente infinita. (3 vezes)
+
+Assim eu ordeno e assim está feito!
+
 ### Grabovoi
 
 |Grabovoi| Meaning                 |
