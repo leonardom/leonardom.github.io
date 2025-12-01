@@ -1,5 +1,11 @@
 ## ☕️ Orações da Manhã
 
+### Marcos 11:23
+Porque em verdade vos digo que qualquer que disser a este monte: Ergue-te e lança-te no mar; e não duvidar em seu coração, mas crer que se fará aquilo que diz, tudo o que disser lhe será feito.
+
+### Marcos 11:24 
+Portanto, eu digo que tudo o que pedirem em oração, creiam que receberão, e assim sucederá.
+
 ### Oração da Manhã
 
 Senhor, no silêncio deste dia que amanhece, venho pedir-te paz, a sabedoria, a força.
@@ -76,57 +82,13 @@ Sou grato porque o dinheiro chega a mim tanto de maneiras previstas como inesper
 
 Alegro-me com a segurança financeira que é uma constante em minha vida.”
 
-### Qual o Salmo que fala sobre gratidão?
-
-Salmo 118. Deem graças ao Senhor porque ele é bom; o seu amor dura para sempre. Na minha angústia clamei ao Senhor; e o Senhor me respondeu, dando-me ampla liberdade. O Senhor está comigo, não temerei.
-
-### Oração de gratidão ao universo
-
-“Universo misterioso e perfeito, que tudo pode ver, pela bênção que possuo em minha vida, atraio a saúde do meu corpo, o verdadeiro amor, o emprego dos meus sonhos e tudo que eu almeje!
-
-Sou grato pelo que possuo e o que vou alcançar, acredito, confio, entrego e realizo.
-
-Pela minha fé do dia a dia, eu me aproximo da luz, do bem e do amor. Minha energia atrai o poder de todas as coisas, pois posso tudo Naquele que me fortalece.
-
-Dou o devido respeito à natureza, com a qual me conecto e através da qual me sinto equilibrado. Posso sentir a vida de todas as coisas que vibram em meu coração e minhas veias. Grito aos quatro cantos que estou vivo!
-
-Torno meus dias cada vez mais coloridos, atraindo pessoa verdadeiras, sentimentos sinceros, momentos inesquecíveis. Sei que sou capaz de fazer isso!
-
-Oh, Universo, ao qual sou grato, Deus que tudo vê, eu O invoco!
-
-Os objetivos diários aos quais me proponho alcançar fazem parte da minha caminhada, a qual enfrentarei facilmente. A luta da rotina serve para alimentar minha vontade de querer cada vez mais.
-
-Meus desejos são propósitos, ordeno que todos cheguem até mim. Nas pequenas coisas me fortifico, dou valor ao que sou, tenho gratidão e enxergo a majestade que existe em mim.
-
-Sou um ser humano único e não preciso de nada e ninguém para me sentir assim. Possuo garra, força e amor dentro de mim.
-
-Eu me reinvento e me descubro diariamente. Busco a evolução, aprofundo minha conexão com meu “eu” espiritual: corpo, alma, saúde e realidade.
-
-Eu vivo no amor, sou amor-próprio e respiro amor.
-
-Vou atrair tudo que houver de positivo, pois os meus pensamentos irão materializar meus objetivos e eu penso e vivo na positividade.
-
-Meu passado não me define. Como a borboleta, estou em constante mudança.
-
-Envio meus pedidos ao Universo e afirmo que serei ouvido. Acredito, peço e recebo!
-
-Não cairei em locais obscuros, pois a luz celestial me acompanha. Ela acende em minha cabeça e me livra de vendas que me impeçam sentir e ver o amor de Deus.
-
-Sempre estou no lugar certo e atraio os atributos corretos para ser cada vez mais uma pessoa melhor.
-
-Sou grato pelo amor que me cerca, pelo bem que me rodeia, por aqueles que se importam comigo. Entrego minha vida às bênçãos do Universo, para todo o sempre.
-
-Gratidão, gratidão, gratidão!
-
-Amém!”
-
 ## 💰 Orações para Fartura e Prosperidade
 
 ### Oração do Enriquecimento
 
 "Ó Deus, criador deste imenso universo, estou aqui para te invocar em favor da minha vida financeira. Que do alto da minha cabeça até a planta dos meus pés que eu seja envolvido por uma corrente de riqueza. Derrame sobre mim o dom da riqueza para que eu veja a tua glória e proclame a tua existência por onde eu passar. E que o anjo do dinheiro me visite e coloque em minhas mãos o espírito da sorte para que tudo que eu tocar venha prosperar!Tu és o dono do ouro e da prata, então venha dos quatro cantos do mundo para me fazer um abençoado e de muitas posses. Manifeste em mim a tua grandeza e me faça ganhar, conquistar e enriquecer, porque tu és um Deus que soma, multiplica e acrescenta.
 
-Pelo poder do nome de Jesus Cristo, eu levanto a minha voz e profetizo que a partir deste instante o dinheiro virá em todas as direções e em avalanches de abundâncias. A partir de agora o meu destino está selado porque sou filho do Deus que criou todas as riquezas do mundo e vou me tornar muito rico. Me dê, ó Pai Celestial, o espírito da sorte para que eu venha acertar em cheio os seis números da The National Lottery (519 7148) porque para o Senhor tudo é possível! Então, me torne o novo ganhador da The National Lottery (519 7148) pelo teu poder pois sei que o Senhor pode interferir em minha vida. É o que eu te peço e determino que irá acontecer, em nome de Jesus Cristo. 
+Pelo poder do nome de Jesus Cristo, eu levanto a minha voz e profetizo que a partir deste instante o dinheiro virá em todas as direções e em avalanches de abundâncias. A partir de agora o meu destino está selado porque sou filho do Deus que criou todas as riquezas do mundo e vou me tornar muito rico. Me dê, ó Pai Celestial, o espírito da sorte para que eu venha acertar em cheio os seis números do The National Lottery porque para o Senhor tudo é possível! Então, me torne o novo ganhador do The National Lottery pelo teu poder pois sei que o Senhor pode interferir em minha vida. É o que eu te peço e determino que irá acontecer, em nome de Jesus Cristo. 
 
 Amém."
 
@@ -137,10 +99,6 @@ Amém."
 Abra as portas do céu e faça chover fartura e abundância sem fim. Enche-nos com sua graça, Senhor. Seremos sempre gratos por sua generosidade. 
 
 Gratidão por tanto amor!"
-
-##### 519 7148 - Tudo é possível
-##### 519 7148 - Tudo é possível
-##### 519 7148 - Tudo é possível
 
 ### Para começar o dia 🙏🏻🍀💰
 
@@ -160,20 +118,13 @@ I am open and ready to receive financial prosperity in my life
 
 I am open and ready to receive lottery fortunes
 
-I allow myself to win a £7 Million Lotto jackpot
-
-![£7 Million Lotto Prize](/assets/images/GBP_7M_Lotto_Prize.png)
+I allow myself to win multi millionaire lotto jackpot
 
 Eu permito que o dinheiro entre constantemente em minha vida.
 
 Eu permito que a riqueza entre constantemente em minha vida.
 
 Eu permito que a prosperidade financeira entre constamente em minha vida.
-
-Salmo 112 2-3
-*"A sua semente será poderosa na terra; A sua geração será abençoada. 
-Prosperidade e Riquezas haverá na sua casa, e a sua justiça 
-permanecerá para sempre."*
 
 ### Decreto
 Uma enorme quantidade de dinheiro chega a mim
