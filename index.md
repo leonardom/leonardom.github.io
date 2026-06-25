@@ -72,9 +72,9 @@ Obrigado, Pai, por Teu perdão e por dar-me uma vida plena e abundante. Senhor, 
 
 Todas as formas de prosperidade chegam a mim.
 
-Agradeço porque Mereço as melhores coisas da vida.
+Agradeço porque mereço as melhores coisas da vida.
 
-Onde quer que eu trabalhe, sou profundamente admirado e bem-remunerado.
+Onde quer que eu trabalhe, sou profundamente admirado e bem remunerado.
 
 Hoje é um dia maravilhoso.
 
@@ -86,9 +86,9 @@ Alegro-me com a segurança financeira que é uma constante em minha vida.”
 
 ### Oração do Enriquecimento
 
-"Ó Deus, criador deste imenso universo, estou aqui para te invocar em favor da minha vida financeira. Que do alto da minha cabeça até a planta dos meus pés que eu seja envolvido por uma corrente de riqueza. Derrame sobre mim o dom da riqueza para que eu veja a tua glória e proclame a tua existência por onde eu passar. E que o anjo do dinheiro me visite e coloque em minhas mãos o espírito da sorte para que tudo que eu tocar venha prosperar!Tu és o dono do ouro e da prata, então venha dos quatro cantos do mundo para me fazer um abençoado e de muitas posses. Manifeste em mim a tua grandeza e me faça ganhar, conquistar e enriquecer, porque tu és um Deus que soma, multiplica e acrescenta.
+"Ó Deus, criador deste imenso universo, estou aqui para te invocar em favor da minha vida financeira. Que do alto da minha cabeça até a planta dos meus pés eu seja envolvido por uma corrente de riqueza. Derrame sobre mim o dom da riqueza para que eu veja a tua glória e proclame a tua existência por onde eu passar. E que o anjo do dinheiro me visite e coloque em minhas mãos o espírito da sorte para que tudo o que eu tocar venha prosperar! Tu és o dono do ouro e da prata, então venha dos quatro cantos do mundo para me fazer um abençoado e de muitas posses. Manifeste em mim a tua grandeza e me faça ganhar, conquistar e enriquecer, porque tu és um Deus que soma, multiplica e acrescenta.
 
-Pelo poder do nome de Jesus Cristo, eu levanto a minha voz e profetizo que a partir deste instante o dinheiro virá em todas as direções e em avalanches de abundâncias. A partir de agora o meu destino está selado porque sou filho do Deus que criou todas as riquezas do mundo e vou me tornar muito rico. Me dê, ó Pai Celestial, o espírito da sorte para que eu venha acertar em cheio os da loteria porque para o Senhor tudo é possível! Então, me torne o novo ganhador da loteria pelo teu poder pois sei que o Senhor pode interferir em minha vida. É o que eu te peço e determino que irá acontecer, em nome de Jesus Cristo. 
+Pelo poder do nome de Jesus Cristo, eu levanto a minha voz e profetizo que a partir deste instante o dinheiro virá em todas as direções e em avalanches de abundância. A partir de agora, o meu destino está selado porque sou filho do Deus que criou todas as riquezas do mundo e vou me tornar muito rico. Me dê, ó Pai Celestial, o espírito da sorte para que eu venha acertar em cheio os números da loteria porque para o Senhor tudo é possível! Então, torne-me o novo ganhador da loteria pelo teu poder, pois sei que o Senhor pode interferir na minha vida. É o que eu te peço e determino que irá acontecer, em nome de Jesus Cristo. 
 
 Amém."
 
@@ -110,32 +110,27 @@ Amém
 
 ---
 
-I am a money magnet
+### Afirmações
 
-Abundance flows to me
+#### Sucesso Profissional e Pessoal
+- Eu escolho me abrir para o sucesso e reconhecer as oportunidades que surgem hoje.
+- A cada dia que passa, eu me sinto mais seguro e capacitado para crescer na minha carreira.
+- Eu estou em um processo contínuo de evolução pessoal e profissional.
+- Por que eu me sinto tão realizado e respeitado no meu trabalho atual?
+- Eu me dou permissão para brilhar e colher os frutos do meu esforço.
 
-I am open and ready to receive financial prosperity in my life
-
-I am open and ready to receive lottery fortunes
-
-I allow myself to win multi millionaire lotto jackpot
-
-Eu permito que o dinheiro entre constantemente em minha vida.
-
-Eu permito que a riqueza entre constantemente em minha vida.
-
-Eu permito que a prosperidade financeira entre constamente em minha vida.
-
-### Decreto
-Uma enorme quantidade de dinheiro chega a mim
-de fontes abundantemente infinita. (3 vezes)
-
-Assim eu ordeno e assim está feito!
+#### Abundância Financeira e Prosperidade (Foco em Fluxo e Permissão)
+- Eu estou aprendendo a me alinhar com o fluxo natural da prosperidade.
+- Minha mente está se tornando cada vez mais receptiva a novas fontes de renda.
+- Eu escolho acreditar que o dinheiro pode vir até mim de forma leve e honesta.
+- Como posso atrair ainda mais abundância financeira e gerenciar bem meus recursos hoje?
+- Eu liberto antigas crenças sobre escassez e me abro para a riqueza, ou algo ainda melhor.
 
 ### Grabovoi
 
-|Grabovoi| Meaning                 |
-|--------|-------------------------|
-|318 798 | Financial Abundance     |
-|519 7148| Everything is possible  |
-|138     | Professional development|
+|Grabovoi | Meaning                 |
+|---------|-------------------------|
+|318 798  | Financial Abundance     |
+|520 741 8| Unexpected money        |
+|519 7148 | Everything is possible  |
+|138      | Professional development|
